@@ -1,1 +1,1 @@
-# arunavakar.github.io
+# https://aritra95.github.io/aritra95/
